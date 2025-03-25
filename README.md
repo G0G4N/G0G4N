@@ -4,4 +4,4 @@
 - 📫 How to reach me  
 - 29lsherry@greenfield.k12.wi.us school email 
 - G0G4NScodeing@gmail.com hone codeing email
-- 😄 Pronouns: he/him?
+- 😄 Pronouns: he/him
